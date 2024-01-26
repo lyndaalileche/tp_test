@@ -4,4 +4,6 @@
 # installation 
 # test pour bien apprendtre
 
-dqsdqsdqsdqsdqsdqsdqsdqs
+dqsdqsdqsdqsdqsdqsdqsdq
+
+tu comprends vite mais faut t'expliquer longtemps
